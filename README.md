@@ -32,10 +32,10 @@
 <p> <p align="center">
       ${\textsf{\color{#861E00}no strict dni, just don't be weird... though i don't fw hazbin / helluva fans}}$ 
  <br> ${\textsf{\color{#861E00}i'm in like, one billion fandoms (ᵕ–ᴗ–) buttt mainly slow damage, alnst,}}$
- <br> ${\textsf{\color{#861E00}danganronpa, my little pony, pokemon n berserk! i have a lot of ponies, but}}$
- <br> ${\textsf{\color{#861E00}be wary i'm not into all their fandoms :( i just like to match w/ friends!}}$
- <br> ${\textsf{\color{#861E00}that being said, just ask me to match and i will, even if i'm not into the}}$
- <br> ${\textsf{\color{#861E00}source material (˶˃ ᵕ ˂˶) i'm quite shy and prefer not to hold long}}$
+ <br> ${\textsf{\color{#861E00}danganronpa, my little pony, pokemon n berserk! i have a lot of ponies,}}$
+ <br> ${\textsf{\color{#861E00}but be wary i'm not into all their fandoms :( i just like to match w/}}$
+ <br> ${\textsf{\color{#861E00}friends! that being said, just ask me to match and i will, even if i'm not}}$
+ <br> ${\textsf{\color{#861E00}into the source material (˶˃ ᵕ ˂˶) i'm quite shy and prefer not to hold long}}$
  <br> ${\textsf{\color{#861E00}conversations, but i'll always try to be nice!!! ꒰ঌ ໒꒱}}$
  <br> ${\textsf{\color{#861E00}( p.s i'm literally touko fukawa n a hotot dwarf bunny... ૮꒰˶  - ˕ -꒱ა )}}$
 </p>
